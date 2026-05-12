@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS script with smart Script for CorelDRAW for macOS - asset management and perspective warp. Featuring asset management and perspective warp,
 
 
 
